@@ -1,3 +1,3 @@
-Yannick Mpore
-Toronto, CA
+Yannick Keza |
+Toronto, CA |
 Meta Front-End Developer Professional Certificate
